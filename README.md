@@ -82,14 +82,6 @@ Various media outlets have reported on Gunduz’s activities in sports developme
 
 ---
 
-## Articles
-
-DEV Community article:
-
-https://dev.to/ibrahimmuratgunduz/ibrahim-murat-gunduz-turkish-sports-executive-supporting-combat-sports-and-athlete-development-2ic7/
-
----
-
 ## Keywords
 
 Ibrahim Murat Gunduz  
