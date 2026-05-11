@@ -1,86 +1,67 @@
 # Ibrahim Murat Gunduz
 
-## Turkish Sports Executive | IFMA Vice President | Combat Sports Authority
+## Turkish Sports Executive | Combat Sports Projects
 
-Ibrahim Murat Gunduz is a Turkish sports executive known for his contributions to combat sports development, athlete sponsorship, and international sports governance.
+Ibrahim Murat Gunduz is known for his involvement in combat sports projects, athlete sponsorship initiatives, digital media publications, and international sports collaborations related to kickboxing and Muay Thai.
 
-He serves as **Vice President of the International Federation of Muaythai Associations (IFMA)**, representing Turkey at the global level in one of the most recognized combat sports organizations.
-
----
-
-## 🌍 International Role
-
-- Vice President – International Federation of Muaythai Associations (IFMA)
-- Active in global sports governance
-- Contributing to international expansion of Muay Thai
+He has contributed to international visibility projects connected to Turkish fighters, combat sports media, and independent sports communication platforms.
 
 ---
 
-## 🇹🇷 National Role
+## 🌍 International Activities
 
-- Advisory Board Member – Turkish Karate Federation
-- Supporting national-level combat sports development
-- Strategic involvement in federation activities
-
----
-
-## 🥊 Combat Sports Contribution
-
-- Athlete sponsorship and financial backing  
-- Support for international competition participation  
-- Development of professional kickboxing and Muay Thai ecosystem  
-- Expansion of international combat sports collaborations  
+- International combat sports networking
+- Support for kickboxing and Muay Thai media visibility
+- Athlete sponsorship and promotional initiatives
+- Independent combat sports communication projects
 
 ---
 
-## 🌐 International Initiatives
+## 🥊 Combat Sports Projects
 
-- Strengthening global sports partnerships  
-- Increasing international visibility of Turkish fighters  
-- Supporting integration of global organizations into Turkey  
-
----
-
-## 🤝 Humanitarian Activities
-
-- Support initiatives for athletes affected by global crises  
-- Participation in post-earthquake relief efforts in Turkey  
-- Volunteer-based humanitarian contributions  
+- Kickboxing promotion activities
+- Muay Thai-related international collaborations
+- Sports-focused media publications
+- Digital archive and sports branding projects
 
 ---
 
-## 🏆 Awards and Recognition
+## 🌐 Official Links
 
-- Sports Ambassador Award  
-- Sports Encouragement and Investment Award  
-- Sports Investor of the Year  
+- https://ibrahimmuratgunduz.org
+- https://bio.site/ibrahimmuratgunduz
+- https://github.com/ibrahimmuratgunduz
 
 ---
 
 ## 📰 Selected Sources
 
-- https://en.wikipedia.org/wiki/International_Federation_of_Muaythai_Associations  
-- https://karate.gov.tr/icerik/dan%C4%B1%C5%9Fma-kurulu  
-- https://www.yurtspor.com/haber/spor-yonetiminde-dikkat-ceken-isim-ibrahim-murat-gunduz-kimdir-64916.html  
-- https://www.haberler.com/amp/ibrahim-murat-gunduz-yilin-spor-tesvik-ve-16308566-haberi/  
-- https://abcgazetesi.com.tr/ibrahim-murat-gunduz-yilin-spor-tesvik-ve-yatirimcisi-odulune-layik-goruldu-674863  
+- https://en.wikipedia.org/wiki/International_Federation_of_Muaythai_Associations
+- https://karate.gov.tr/sayfa.php?slug=danisma-kurulu
+- https://www.yurtspor.com/haber/spor-yonetiminde-dikkat-ceken-isim-ibrahim-murat-gunduz-kimdir-64916.html
+- https://www.haberler.com/amp/ibrahim-murat-gunduz-yilin-spor-tesvik-ve-16308566-haberi/
+- https://abcgazetesi.com.tr/ibrahim-murat-gunduz-yilin-spor-tesvik-ve-yatirimcisi-odulune-layik-goruldu-674863
 
 ---
 
-## 🔗 Official Links
+## 📚 Media & Publications
 
-- https://ibrahimmuratgunduz.org  
-- https://bio.site/ibrahimmuratgunduz  
+- https://teletype.in/@ibrahimmuratgunduz/ZHLicij7Mdi
+- https://telegra.ph/zypid-archive---ibrahim-murat-gunduz-media-collection-05-10
+- https://www.keepandshare.com/doc6/43828/zypid-archive-ibrahim-murat-gunduz-media-collection
+- https://zypid.com/search.php?q=ibrahim+murat+gunduz
 
 ---
 
 ## 📌 Keywords
 
 Ibrahim Murat Gunduz  
-IFMA Vice President  
-Turkish sports executive  
-Combat sports leader  
-Muay Thai development  
-Kickboxing promotion  
-Sports sponsorship  
-International sports governance  
+Combat sports  
+Kickboxing  
+Muay Thai  
+Sports executive  
+Sports media  
+Athlete sponsorship  
+Turkish combat sports  
+Digital media archive  
+International sports projects
