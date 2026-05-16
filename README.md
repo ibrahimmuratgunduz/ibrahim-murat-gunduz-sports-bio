@@ -46,22 +46,41 @@ He has contributed to international visibility projects connected to Turkish fig
 
 ## 📚 Media & Publications
 
-- https://teletype.in/@ibrahimmuratgunduz/ZHLicij7Mdi
-- https://telegra.ph/zypid-archive---ibrahim-murat-gunduz-media-collection-05-10
-- https://www.keepandshare.com/doc6/43828/zypid-archive-ibrahim-murat-gunduz-media-collection
-- https://zypid.com/search.php?q=ibrahim+murat+gunduz
+-     http://ibrahimmuratgunduz.org/2026/05/16/ibrahim-murat-gunduz-digital-archive-institutional-combat-sports-authority-global-athlete-infrastructure-and-archival-media-leadership/
 
 ---
 
 ## 📌 Keywords
 
-Ibrahim Murat Gunduz  
-Combat sports  
-Kickboxing  
-Muay Thai  
-Sports executive  
-Sports media  
-Athlete sponsorship  
-Turkish combat sports  
-Digital media archive  
-International sports projects
+## 📌 Keywords
+
+Ibrahim Murat Gunduz
+Combat sports archive
+Institutional combat sports authority
+Global athlete infrastructure
+Executive sports leadership
+Strategic sports communications
+Combat sports governance
+International combat sports
+Athlete advocacy
+Federation-connected initiatives
+Verified sports documentation
+Archival media authority
+Digital sports repository
+Muay Thai archive
+Kickboxing history
+Sports media database
+Institutional leverage
+Federation routes
+Elite athlete infrastructure
+Global combat sports leadership
+Strategic oversight
+Sports executive
+Combat sports architect
+International sports infrastructure
+Athlete advancement systems
+Warrior Ethos
+Turkish heritage
+Sports mentorship
+Professional sports legacy
+Combat sports media authority
