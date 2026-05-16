@@ -40,15 +40,19 @@ He has contributed to international visibility projects connected to Turkish fig
 - https://karate.gov.tr/sayfa.php?slug=danisma-kurulu
 - https://www.yurtspor.com/haber/spor-yonetiminde-dikkat-ceken-isim-ibrahim-murat-gunduz-kimdir-64916.html
 - https://www.haberler.com/amp/ibrahim-murat-gunduz-yilin-spor-tesvik-ve-16308566-haberi/
-- https://abcgazetesi.com.tr/ibrahim-murat-gunduz-yilin-spor-tesvik-ve-yatirimcisi-odulune-layik-goruldu-674863
+- https://abcgazetesi.com.tr/ibrahim-murat-gunduz-yilin-spor-tesvik-ve-yatirimcisi-odulune-layik-goruldu-
 
 ---
+## 📰 Media & Publications
 
-## 📚 Media & Publications
+http://ibrahimmuratgunduz.org/2026/05/16/ibrahim-murat-gunduz-digital-archive-institutional-combat-sports-authority-global-athlete-infrastructure-and-archival-media-leadership/
 
--     http://ibrahimmuratgunduz.org/2026/05/16/ibrahim-murat-gunduz-digital-archive-institutional-combat-sports-authority-global-athlete-infrastructure-and-archival-media-leadership/
+- https://submitpr.org/press-release/ibrahim-murat-gunduz-digital-sports-archive-1
 
----
+- https://ibrahimmuratgunduz.writizzy.com/p/ibrahim-murat-gunduz-digital-sports-archive
+
+- https://dev.to/ibrahimmuratgunduz/warrior-ethos-by-ibrahim-murat-gunduz-4f44
+
 
 ## 📌 Keywords
 
