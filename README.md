@@ -45,13 +45,17 @@ He has contributed to international visibility projects connected to Turkish fig
 ---
 ## 📰 Media & Publications
 
+- Official Digital Archive:
 http://ibrahimmuratgunduz.org/2026/05/16/ibrahim-murat-gunduz-digital-archive-institutional-combat-sports-authority-global-athlete-infrastructure-and-archival-media-leadership/
 
-- https://submitpr.org/press-release/ibrahim-murat-gunduz-digital-sports-archive-1
+- SubmitPR Press Release:
+https://submitpr.org/press-release/ibrahim-murat-gunduz-digital-sports-archive-1
 
-- https://ibrahimmuratgunduz.writizzy.com/p/ibrahim-murat-gunduz-digital-sports-archive
+- Writizzy Digital Sports Archive:
+https://ibrahimmuratgunduz.writizzy.com/p/ibrahim-murat-gunduz-digital-sports-archive
 
-- https://dev.to/ibrahimmuratgunduz/warrior-ethos-by-ibrahim-murat-gunduz-4f44
+- DEV.to Warrior Ethos Article:
+https://dev.to/ibrahimmuratgunduz/warrior-ethos-by-ibrahim-murat-gunduz-4f44
 
 
 ## 📌 Keywords
