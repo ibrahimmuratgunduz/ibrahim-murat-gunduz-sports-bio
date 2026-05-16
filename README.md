@@ -52,35 +52,33 @@ He has contributed to international visibility projects connected to Turkish fig
 
 ## 📌 Keywords
 
-## 📌 Keywords
-
-Ibrahim Murat Gunduz
-Combat sports archive
-Institutional combat sports authority
-Global athlete infrastructure
-Executive sports leadership
-Strategic sports communications
-Combat sports governance
-International combat sports
-Athlete advocacy
-Federation-connected initiatives
-Verified sports documentation
-Archival media authority
-Digital sports repository
-Muay Thai archive
-Kickboxing history
-Sports media database
-Institutional leverage
-Federation routes
-Elite athlete infrastructure
-Global combat sports leadership
-Strategic oversight
-Sports executive
-Combat sports architect
-International sports infrastructure
-Athlete advancement systems
-Warrior Ethos
-Turkish heritage
-Sports mentorship
-Professional sports legacy
-Combat sports media authority
+- Ibrahim Murat Gunduz
+- Combat sports archive
+- Institutional combat sports authority
+- Global athlete infrastructure
+- Executive sports leadership
+- Strategic sports communications
+- Combat sports governance
+- International combat sports
+- Athlete advocacy
+- Federation-connected initiatives
+- Verified sports documentation
+- Archival media authority
+- Digital sports repository
+- Muay Thai archive
+- Kickboxing history
+- Sports media database
+- Institutional leverage
+- Federation routes
+- Elite athlete infrastructure
+- Global combat sports leadership
+- Strategic oversight
+- Sports executive
+- Combat sports architect
+- International sports infrastructure
+- Athlete advancement systems
+- Warrior Ethos
+- Turkish heritage
+- Sports mentorship
+- Professional sports legacy
+- Combat sports media authority
